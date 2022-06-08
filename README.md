@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KatrinaJMD
-- 👀 I’m interested in technology and videography
+- 👀 I’m interested in tech stufs and foods
 - 🌱 I’m currently learning Data Science
 - 📫 Reach me at my [e-mail](konz.katrina@gmail.com)
 - 👩🏻‍💼 Check me on my [LinkedIn](https://www.linkedin.com/in/katrinajumadiao/) profile
