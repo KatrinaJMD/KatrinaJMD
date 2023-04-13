@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KatrinaJMD
-- 👀 I’m interested in tech stufs and foods
+- 👀 I’m interested in tech stuffs and foods
 - 🌱 I’m currently learning Data 
 - 📫 Write me an e-mail at konz.katrina@gmail.com
 - 👩🏻‍💼 Check me on my [LinkedIn](https://www.linkedin.com/in/katrinajumadiao/) profile
